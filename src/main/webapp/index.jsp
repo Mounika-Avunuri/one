@@ -18,7 +18,7 @@
         </strong></strong></p><strong><strong>
         <a href="https://en.wikipedia.org/wiki/Smita_Sabharwal">Wikipedia</a>
         </div>
-         <h2>Early life and education:</h2><hr>
+         <h2>Early life and education of Smitha sabarval:</h2><hr>
             <p>Sabharwal was born in a <a href="https://en.wikipedia.org/wiki/Bengalis">Bengali </a>family in <a href="https://en.wikipedia.org/wiki/Darjeeling">Darjeeling</a>, <a href="https://en.wikipedia.org/wiki/West_Bengal">West Bengal</a> to an Army officer, Colonel Pranab Das, and Purabi Das. She did her schooling at <a href="https://en.wikipedia.org/wiki/St._Ann%27s_High_School,_Secunderabad">St. Ann's High School, Secunderabad</a>. She was the all India topper in ICSE exam. She graduated in Commerce from St Francis College for Women, Hyderabad.
             
             She was 22, when she cleared the <a href="https://en.wikipedia.org/wiki/Union_Public_Service_Commission">Union Public Service Commission</a> exam in 2000, securing All India fourth rank. </p>
